@@ -1,2 +1,2 @@
 # final-outcome
-Mom can't type.  She is angry!
+Mom can't type.  Stop laughing at me BLAKE!
