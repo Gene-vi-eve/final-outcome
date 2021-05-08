@@ -1,2 +1,2 @@
 # final-outcome
-Mom can't type.  HAHAHAHAHAH
+Mom can't type.  H
